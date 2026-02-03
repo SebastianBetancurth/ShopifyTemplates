@@ -1,0 +1,1 @@
+C:/Users/Usuario/Desktop/Practicas Shopify/Testing Theme/AGENTS.md
